@@ -1,3 +1,3 @@
-### Hi! I'm Rafael  
+### Hi!
 
 <img src="https://c.tenor.com/0ksFSWOphnoAAAAi/wave-emoji.gif" />
